@@ -1,5 +1,2 @@
-Terrible at coding, trying to get better
-History of money enjoyer
-Backing crypto founders at Reciprocal Ventures
-Hit me up: tg handle is @jimbo_evans (note the underscore)
+Terrible at *waves at everything* this, trying to get better
 Opinions are my own; not investment advice
